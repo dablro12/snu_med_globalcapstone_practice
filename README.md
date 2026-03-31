@@ -1,0 +1,1 @@
+# snu_med_globalcapstone_practice
